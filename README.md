@@ -1,1 +1,0 @@
-# Barzzz010-jpg-Database
